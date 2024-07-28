@@ -1,6 +1,5 @@
-***
-## ㅤMORNINGSRADIOHOUR![Untitled65_20240710203425](https://i.pinimg.com/originals/e0/bd/07/e0bd0745689c370738b730f9c4978e0b.gif)   ㅤ   ㅤ
-ㅤㅤ[fullbroadcast](https://rentry.org/rosesforyourradio) ㅤㅤㅤ[pre-record](https://inanotheruniverse.straw.page) ㅤㅤ  ㅤ[not jazz playing? preposterous!](https://open.spotify.com/playlist/0PlUIUyudBmDDyYZh6DeWU?si=qqphGvhzRrOmUHHKKQ2bMg)
+## ㅤㅤㅤMORNINGSRADIOHOUR![Untitled65_20240710203425](https://i.pinimg.com/originals/e0/bd/07/e0bd0745689c370738b730f9c4978e0b.gif)   ㅤ   ㅤ
+ㅤㅤㅤㅤ[fullbroadcast](https://rentry.org/rosesforyourradio) ㅤㅤㅤ[pre-record](https://inanotheruniverse.straw.page) ㅤㅤ  ㅤ[not jazz playing? preposterous!](https://open.spotify.com/playlist/0PlUIUyudBmDDyYZh6DeWU?si=qqphGvhzRrOmUHHKKQ2bMg)
 
 
 ㅤㅤi'll list down the basic things you can know abt me:
@@ -13,5 +12,3 @@
 that'll be all! thank you for your time!
 
 do read my rentry and strawpage if i'm still worth of time>_<!
-
-***
