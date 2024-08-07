@@ -6,9 +6,9 @@
 
  1. my pronouns are she/her, i also don't mind they/them or he/him while in character.
  2. i'm socially inept.
- 3. i mostly go online at 12-2am est or 7-9am est in pt.
+ 3. i mostly go online at 12/2am est or 7/9am est on weekends and 5/7am est if on weekdays
  4. i'm a bit of an alastor and lucifer's kin so it gets crazy out here !!!^_^
- 5. i surely don't mind ships but HELPME JS DONT TELL ME IN DETAILS (im talkin abt al) IF ITS ALASTOR ???</3
+ 5. i surely don't mind ships but HELPME JS DONT TELL ME IN DETAILS (im talkin abt sexualizing) IF ITS ALASTOR ???</3
 
 that'll be all! thank you for your time!
 
